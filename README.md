@@ -1,2 +1,2 @@
-# deviewordiefanmadehomepage
-this is a unofficial fanmade "deview or die"homepage. enjoy^^
+# debut&diefanmadehomepage
+this is a unofficial fanmade "debut or die"homepage. enjoy^^
